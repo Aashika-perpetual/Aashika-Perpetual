@@ -34,7 +34,7 @@
 
 ### 📫 Let's Connect
 
-- 💼 [LinkedIn](https://www.linkedin.com/in/aashika-perpetual/)
+- 💼 [LinkedIn](https://www.linkedin.com/in/aashika-perpetual-g-796673265/)
 - 💌 Email: [geoannaventhan@gmail.com](mailto:geoannaventhan@gmail.com)
 
 ---
